@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Marcelo Nepomuceno Marcos
+#  📈 Marcelo Nepomuceno Marcos
 
 **`Analista de Dados`**
 
